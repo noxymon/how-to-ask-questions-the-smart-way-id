@@ -1,1 +1,1 @@
-# how-to-ask-questions-the-smart-way-id
+# How To Ask Questions The Smart Way (Indonesia)
